@@ -1,0 +1,1 @@
+All you have to do is ground red chilli, add butter, add ginger garlic, add spreader oil Then, go and boil the chicken blocks for 10 min, then mix it with the marinated butter.
